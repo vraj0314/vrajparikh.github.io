@@ -1,1 +1,0 @@
-# vrajparikh.github.io
